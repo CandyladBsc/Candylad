@@ -1,0 +1,1 @@
+A charity-oriented token that trying to contribute the world to be a better place , and bring a sweet Candylad Coin to every corner of the world. For the better future ,let's move forward together with Candylad Coin.
